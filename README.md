@@ -10,6 +10,7 @@ thanaphumi.t@kkumail.com
 
 ## Work
 # Personal Assignment
+Essay : https://docs.google.com/document/d/1jGoyZFO-iCvDAqx_UnQU6JjoRzUfNxd1jNEBu6FiuYo/edit?usp=sharing
 
 # Group
 
