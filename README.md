@@ -34,4 +34,5 @@ Lab4  : https://docs.google.com/document/d/1FFL_r2UdApFczc6wnztkUtEXVDpxEGZ1aJ4t
 https://github.com/MammamiaPizza/Synapse-X_network
 
 
-[CCNA-_Introduction_to_Networks_certificate_thanaphumi-t-kkumail-com_155e1376-142d-4602-8f52-3ca0ced02de4.pdf](https://github.com/user-attachments/files/26631320/CCNA-_Introduction_to_Networks_certificate_thanaphumi-t-kkumail-com_155e1376-142d-4602-8f52-3ca0ced02de4.pdf)
+<img width="1160" height="787" alt="image" src="https://github.com/user-attachments/assets/5b942979-0160-41c2-8727-9b194fcfe2c3" />
+
